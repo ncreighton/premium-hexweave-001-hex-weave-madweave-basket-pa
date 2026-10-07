@@ -1,0 +1,2 @@
+# premium-hexweave-001-hex-weave-madweave-basket-pa
+Juggling multiple hex weave and madweave basket patterns across scattered documents? Stop losing your design ideas and start building a centralized command center where every pattern variation, color combo, and weaving technique lives in one searchable, organized space.  The Hex Weave &amp; Madweave Basket Pattern Craft Hub is a pre-built Notion templa
